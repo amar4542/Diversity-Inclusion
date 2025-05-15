@@ -1,1 +1,1 @@
-# Diversity-Inculsion
+# Diversity-Inclusion
